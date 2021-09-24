@@ -2,4 +2,4 @@
 
 # 🚀Hodlers🌞
 
-## [*Join Us*](https://discord.gg/bB5WRbemFR)
+## [*Join Us on Discord*](https://discord.gg/bB5WRbemFR)
