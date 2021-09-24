@@ -1,5 +1,5 @@
 # Welcome
 
-Learn & Grow Rich together.
+🚀Hodlers🌞
 
-[## Join our community](https://discord.gg/bB5WRbemFR)
+## [Join Us](https://discord.gg/bB5WRbemFR)
