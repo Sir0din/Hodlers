@@ -1,5 +1,5 @@
 # Welcome
 
-### 🚀Hodlers🌞
+# 🚀Hodlers🌞
 
-## [Join Us](https://discord.gg/bB5WRbemFR)
+[*Join Us*](https://discord.gg/bB5WRbemFR)
