@@ -4,7 +4,7 @@
 
 **Committed to improve your life?**
 
-- [join Hodles] 
+- [join Hodlers] 
 
 # Join us on Discord
 [https://discord.gg/bB5WRbemFR]()
