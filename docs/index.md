@@ -2,9 +2,9 @@
 
 `we are so happy to write this website`
 
-**Committed to improve your life?**
+**Time is the ultimate Primordial fuel of our lifes**
 
-- [join Hodlers] 
+*Dont waste yours*
 
 # Join us on Discord
 [https://discord.gg/bB5WRbemFR]()
