@@ -1,8 +1,4 @@
-## Welcome to HODLers Website
+# Welcome
 
-**Time is the ultimate Primordial fuel of our lifes**
-
-*Dont waste yours*
-
-# Join us on Discord
-[https://discord.gg/bB5WRbemFR]()
+Join us on Discord
+https://discord.gg/bB5WRbemFR
