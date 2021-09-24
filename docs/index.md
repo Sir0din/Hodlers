@@ -1,8 +1,8 @@
 # Welcome
-`We are designing our website and learning!`
 
-*Hodl & Learn together*
+Together we are stronger.
 
-```
-Join us on Discord
-https://discord.gg/bB5WRbemFR
+Learn & Grow Rich.
+
+## Join our community
+[Discord](https://discord.gg/bB5WRbemFR)
