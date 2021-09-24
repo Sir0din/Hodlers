@@ -1,13 +1,10 @@
-## Welcome to HODLers GitHub Pages
+## Welcome to HODLers Website
 
-You can use the [editor on GitHub](https://github.com/Sir0din/Hodlers/edit/main/docs/index.md) to maintain and preview the content for your website in Markdown files.
+`we are so happy to write this website`
 
+**Committed to improve your life?**
 
-### Markdown
-
-
-```markdown
-Syntax highlighted code block
+- [join Hodles] 
 
 # Join us on Discord
 [https://discord.gg/bB5WRbemFR]()
