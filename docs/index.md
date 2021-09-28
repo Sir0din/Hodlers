@@ -4,7 +4,7 @@
 
 **Hold On Dear Life**
 
-This Website is oriented those who seek Financial Independence.
+This Website is oriented for those who seek Financial Independence.
 
 **What is Financial Independence?**
 
