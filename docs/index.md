@@ -1,5 +1,7 @@
 # Welcome
 
-# 🚀Hodlers🌞
+## 🚀Hodlers🌞
 
-## [*Join Us on Discord*](https://discord.gg/bB5WRbemFR)
+*Hold On Dear Life*
+
+# [*Join Us on Discord*](https://discord.gg/bB5WRbemFR)
