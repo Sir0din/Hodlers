@@ -60,12 +60,10 @@ You can also learn a bit more about some other currencies and get some$ as rewar
 🔹 https://www.kucoin.com/ucenter/signup?rcode=y5avv8 🔹
 KuCoin is a cryptocurrency exchange: buy, sell, Stake and Lend!
 
-**Pionex**
-:orange_heart: **It is FREE** to use Pionex and their **built-in crypto trading bots**
+🔹 https://www.pionex.com/en-US/sign/ref/5fsUSrQW 🔹
 :classical_building: **Pionex** is an exchange designed for trading bots.
 :auto_rickshaw: *Use it to **automate your trading!*
-
-:small_orange_diamond:https://www.pionex.com/en-US/sign/ref/5fsUSrQW :small_orange_diamond: **<Use this LINK!**
+:orange_heart: *It is FREE* to use Pionex and their *built-in crypto trading bots*
 
 **Grid Trading** *makes it easy to gain a stable, passive profit with low risk in the volatile crypto market.*
 *By using the Grid Trading Bot, you will avoid all the emotional decisions and lockup small profits all the time, while the price keeps fluctuating.*
