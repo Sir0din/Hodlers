@@ -54,8 +54,6 @@ Assets in your wallet will generate interest at different rates per asset.
 
 
 🔹 [Coinbase](https://www.coinbase.com/join/res_g?src=android-share)
-We've been using Coinbase (among others) to buy crypto.
-You can also learn a bit more about some other currencies and get some$ as reward
 
 
 🔹 [Kucoin](https://www.kucoin.com/ucenter/signup?rcode=y5avv8) is a cryptocurrency exchange
