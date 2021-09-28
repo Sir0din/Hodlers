@@ -1,5 +1,9 @@
 # Welcome
 
+## 🚀Hodlers🌞
+
+**Hold On Dear Life**
+
 This Website is oriented those who seek Financial Independence.
 
 **What is Financial Independence?**
@@ -19,10 +23,6 @@ That’s true financial independence.
 
 Crypto is a new financial asset that you can grow over the long term without doing much, through different methods such as lending or staking.
 This way, crypto assets can help you achieve financial independence.
-
-## 🚀Hodlers🌞
-
-**Hold On Dear Life**
 
 **HODLING**
 Buy crypto and wait for the value of your assets to potentially increase over time.
@@ -60,10 +60,10 @@ You can also learn a bit more about some other currencies and get some$ as rewar
 🔹 https://www.kucoin.com/ucenter/signup?rcode=y5avv8 🔹
 KuCoin is a cryptocurrency exchange: buy, sell, Stake and Lend!
 
-____**Pionex**____
-:orange_heart: **It`s FREE** *to use Pionex and their **built-in crypto trading bots.***
+**Pionex**
+:orange_heart: **It is FREE** to use Pionex and their **built-in crypto trading bots**
 :classical_building: **Pionex** is an exchange designed for trading bots.
-:auto_rickshaw: *Use it to **automate your trading!***
+:auto_rickshaw: *Use it to **automate your trading!*
 
 :small_orange_diamond:https://www.pionex.com/en-US/sign/ref/5fsUSrQW :small_orange_diamond: **<Use this LINK!**
 
@@ -89,4 +89,4 @@ __
 *Cryptocurrencies are often not controlled by a single entity.*
 *They also use complex cryptography coupled with a new form of online public ledger.*
 
-# [*Join Us on Discord*](https://discord.gg/bB5WRbemFR)
+[*Join Us on Discord*](https://discord.gg/bB5WRbemFR)
