@@ -22,7 +22,7 @@ Crypto is a new financial asset that you can grow over the long term without doi
 This way, crypto assets can help you achieve financial independence.
 
 **HODLING**
-*Buy crypto and wait for the value of your assets to potentially increase over time.*
+*crypto and wait for the value of your assets to potentially increase over time.*
 
 **INCREASE YOUR HOLDINGS BY:**
 
