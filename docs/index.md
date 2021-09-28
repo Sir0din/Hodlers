@@ -48,27 +48,25 @@ We use advocate for those strategies, wich offer low yield at a very low risk.
 
 If you are looking for the tools to grow your assets by lending or Staking we have been using the following:
 
-🔹 [Celsius](https://celsiusnetwork.app.link/133407dc61) 🔹
-
+🔹 [Celsius](https://celsiusnetwork.app.link/133407dc61)
 Celsius Network pays you interest every Monday!
 Assets in your wallet will generate interest at different rates per asset.
 
-🔹 [Coinbase](https://www.coinbase.com/join/res_g?src=android-share) 🔹
+
+🔹 [Coinbase](https://www.coinbase.com/join/res_g?src=android-share)
 We've been using Coinbase (among others) to buy crypto.
-You can also learn a bit more about some other currencies and get some$ as reward.
+You can also learn a bit more about some other currencies and get some$ as reward
 
 
-🔹 [Kucoi](https://www.kucoin.com/ucenter/signup?rcode=y5avv8) 🔹
-KuCoin is a cryptocurrency exchange: buy, sell, Stake and Lend!
+🔹 [Kucoin](https://www.kucoin.com/ucenter/signup?rcode=y5avv8) is a cryptocurrency exchange
+Buy, sell, Stake and Lend!
 
 
-🔹 [Pionex](https://www.pionex.com/en-US/sign/ref/5fsUSrQW) 🔹
-:classical_building: **Pionex** is an exchange designed for trading bots.
-:auto_rickshaw: *Use it to **automate your trading!*
+🔹 [Pionex](https://www.pionex.com/en-US/sign/ref/5fsUSrQW) is an exchange with built-in trading bots
 
 
-**Grid Trading** *makes it easy to gain a stable, passive profit with low risk in the volatile crypto market.*
-*By using the Grid Trading Bot, you will avoid all the emotional decisions and lockup small profits all the time, while the price keeps fluctuating.*
+**Grid Trading** *makes it easy to gain a stable, passive profit with low risk in the volatile crypto market*
+*By using the Grid Trading Bot, you will avoid all the emotional decisions and lockup small profits all the time, while the price keeps fluctuating*
 
 **If you want to learn how to profitably trade cryptocurrency, you’re at the right place!**
 
