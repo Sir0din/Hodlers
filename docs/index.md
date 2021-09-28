@@ -48,22 +48,24 @@ We use advocate for those strategies, wich offer low yield at a very low risk.
 
 If you are looking for the tools to grow your assets by lending or Staking we have been using the following:
 
-🔹 https://celsiusnetwork.app.link/133407dc61 🔹
-LINK FOR APP WITH PROMO CODE: 133407dc61
+🔹 [Celsius](https://celsiusnetwork.app.link/133407dc61) 🔹
+
 Celsius Network pays you interest every Monday!
 Assets in your wallet will generate interest at different rates per asset.
 
-🔹 https://www.coinbase.com/join/res_g?src=android-share 🔹
+🔹 [Coinbase](https://www.coinbase.com/join/res_g?src=android-share) 🔹
 We've been using Coinbase (among others) to buy crypto.
 You can also learn a bit more about some other currencies and get some$ as reward.
 
-🔹 https://www.kucoin.com/ucenter/signup?rcode=y5avv8 🔹
+
+🔹 [Kucoi](https://www.kucoin.com/ucenter/signup?rcode=y5avv8) 🔹
 KuCoin is a cryptocurrency exchange: buy, sell, Stake and Lend!
 
-🔹 https://www.pionex.com/en-US/sign/ref/5fsUSrQW 🔹
+
+🔹 [Pionex](https://www.pionex.com/en-US/sign/ref/5fsUSrQW) 🔹
 :classical_building: **Pionex** is an exchange designed for trading bots.
 :auto_rickshaw: *Use it to **automate your trading!*
-:orange_heart: *It is FREE* to use Pionex and their *built-in crypto trading bots*
+
 
 **Grid Trading** *makes it easy to gain a stable, passive profit with low risk in the volatile crypto market.*
 *By using the Grid Trading Bot, you will avoid all the emotional decisions and lockup small profits all the time, while the price keeps fluctuating.*
@@ -88,3 +90,7 @@ __
 *They also use complex cryptography coupled with a new form of online public ledger.*
 
 [*Join Us on Discord*](https://discord.gg/bB5WRbemFR)
+
+[]()
+[]()
+
