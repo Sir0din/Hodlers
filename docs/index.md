@@ -42,7 +42,7 @@ These were built with one main goal in mind: to empower you, the user.
 
 If you are looking for the tools/companies to help you grow your assets, we have been using the following:
 
-🔹 [Coinbase](https://www.coinbase.com/join/res_g?src=android-share) "For Buying/Selling & Staking"
+🔹 [Coinbase](https://www.coinbase.com/join/res_g?src=android-share) "Trade & Stake"
 
 🔹 [Celsius](https://celsiusnetwork.app.link/133407dc61) Network pays you interest every Monday!
 Assets in your wallet will generate interest at different rates per asset.
