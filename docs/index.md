@@ -51,11 +51,12 @@ Own crypto and let it do the works!
 Lend your crypto in exchange for interest payments.
 Like a loan from a bank, except that you are the bank.
 -[Unbank yourself!](https://celsiusnetwork.app.link/133407dc61)
+
 _
 The rules a cryptocurrency is based on is enforced by a decentralised network of specialised computers.
-These work together to keep everything secure and make sure nobody can get up to any funny business.
+*These work together to keep everything secure and make sure nobody can get up to any funny business*
 
-These were built with one main goal in mind: to empower you, the user.
+These were built with one main goal in mind: **to empower you, the user.**
 
 
 
@@ -63,13 +64,14 @@ If you are looking for the tools/companies to help you grow your assets, we have
 
 🔹 [Coinbase](https://www.coinbase.com/join/res_g?src=android-share) "Trade & Stake"
 
-🔹 [Celsius](https://celsiusnetwork.app.link/133407dc61) Network pays you interest every Monday!
+🔹 [Celsius Network](https://celsiusnetwork.app.link/133407dc61) pays you interest every Monday!
 Assets in your wallet will generate interest at different rates per asset.
 
 🔹 [Kucoin](https://www.kucoin.com/ucenter/signup?rcode=y5avv8) is a cryptocurrency exchange
 Trade, Stake and Lend on Kucoin!
 
 🔹 [Pionex](https://www.pionex.com/en-US/sign/ref/5fsUSrQW) is an exchange with built-in trading bots.
+I recommend Pionex Strategies, you will be 😲
 
 🔹 [Crypto.com]()
 
