@@ -4,40 +4,59 @@
 
 **Hold On Dear Life**
 
-This Website is oriented for those who seek Financial Independence.
+Hold on to our life intead of chasing money.
+If you want to achieve something, achieve financial Indepence
 
-**What is Financial Independence?**
+This Website is an extension of [🚀Hodlers🌞 Discord Group](https://discord.gg/bB5WRbemFR) created to unite help each other grow ourselfs and our assets.
+If you managed to get here, you probably came for money($), whoever i hope you chose to stay for everything else and for the real money.
 
-Can be described as a state where you simply don’t need to work anymore because **you’ve got enough money coming in from elsewhere to live on for the foreseeable future**
+"The lips of wisdom are closed, except to the ears of understanding"
+*The Kybalion*
+
+To understand what we are holding on, you must first come to observe and understand your priorities and values first.
+What do you value the most?
+How do you spend your time?
+How do you value your time?
+
+Chasing money is being a slave to money.
+Use money for as the tool it was created for.
+
+I bet you want to have so much money coming in that you dont need to work, I love the concept of achieving Financial Indepence, to do it, you just need to make sure you are earning and saving for multiple purpuses, investing being the top priority.
 
 The goal is to **accumulate assets** such as stocks, real estate or savings in order **to generate passive income.**
 
-By doing so, people can concentrate on what is essential for them and live their life to the fullest.
+By doing so, we can concentrate on what is essential for them and live their life to the fullest.
 
-By bypassing traditional financial systems such as banks or governments, crypto gives people control over their money and lives.
+By bypassing traditional financial systems such as banks or governments, **crypto** gives people control over their money and lives.
+
 With crypto, you are in full control of your money, completely unreliant on anyone or anything else.
 That’s true financial independence.
 
 Crypto is a new financial asset that you can grow over the long term without doing much, through different methods such as lending or staking.
 This way, crypto assets can help you achieve financial independence.
 
-**HODLING**
-*crypto and wait for the value of your assets to potentially increase over time.*
+**HODLING** 
+*HODL your crypto and wait for the value of your assets to potentially increase over time.*
+-Buy on dip and HODL!
+I use [Kucoin](https://www.kucoin.com/ucenter/signup?rcode=y5avv8) to find new gems and access to new token spotligths, among with other amazing strategies, it is the peoples exchange 😊
 
 **INCREASE YOUR HOLDINGS BY:**
 
 **STAKING**
 Be rewarded for hodling some specific types of crypto.
 Own crypto and let it do the works!
+-Make your money work!
 
 **LENDING**
 Lend your crypto in exchange for interest payments.
 Like a loan from a bank, except that you are the bank.
+-[Unbank yourself!](https://celsiusnetwork.app.link/133407dc61)
 _
 The rules a cryptocurrency is based on is enforced by a decentralised network of specialised computers.
 These work together to keep everything secure and make sure nobody can get up to any funny business.
 
 These were built with one main goal in mind: to empower you, the user.
+
 
 
 If you are looking for the tools/companies to help you grow your assets, we have been using the following:
