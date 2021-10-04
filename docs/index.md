@@ -13,17 +13,14 @@ If you managed to get here, you probably came for money($), whoever i hope you c
 "The lips of wisdom are closed, except to the ears of understanding"
 *The Kybalion*
 
-To understand what we are holding on, you must first come to observe and understand our priorities and beliefs first.
+To understand what we are holding on, you must first come to observe and understand your priorities and beliefs.
 What do you value the most?
 How do you spend your time?
 How do you value your time?
 
-Do not be a money slave dont trade your time for money.
-Use money for as the tool it was created for, to exchange value.
+“Most of us have to consider our finances in nearly every decision we make, or maybe even make decisions solely based on money. But once we reach financial independence, we get the freedom not to be bossed around by what we earn or what we have saved.”
 
-I bet you want to have so much money coming in that you dont need to work.
-
-Thhe goal is to **accumulate crypto assets** in order **to generate passive income.**.
+The goal is to **accumulate crypto assets** in order **to generate passive income**.
 
 By doing so, we can concentrate on what is essential for us and live our life to the fullest.
 
