@@ -4,33 +4,32 @@
 
 **Hold On Dear Life**
 
-Hold on to our life intead of chasing money.
-If you want to achieve something, achieve financial Indepence
+Hold on to your life instead of chasing moneys,
+If you want to chase something, chase financial Indepence.
 
-This Website is an extension of [🚀Hodlers🌞 Discord Group](https://discord.gg/bB5WRbemFR) created to unite help each other grow ourselfs and our assets.
-If you managed to get here, you probably came for money($), whoever i hope you chose to stay for everything else and for the real money.
+This Website is an extension of [🚀Hodlers🌞 Discord Group](https://discord.gg/bB5WRbemFR) created to unite and help each other understand our rich we are, nurturing and empowering the community.
+If you managed to get here, you probably came for money($), whoever i hope you chose to stay for everything else and for the real money. Together we can understand what is money and how you can trade for profit.
 
 "The lips of wisdom are closed, except to the ears of understanding"
 *The Kybalion*
 
-To understand what we are holding on, you must first come to observe and understand your priorities and values first.
+To understand what we are holding on, you must first come to observe and understand our priorities and beliefs first.
 What do you value the most?
 How do you spend your time?
 How do you value your time?
 
-Chasing money is being a slave to money.
-Use money for as the tool it was created for.
+Do not be a money slave dont trade your time for money.
+Use money for as the tool it was created for, to exchange value.
 
-I bet you want to have so much money coming in that you dont need to work, I love the concept of achieving Financial Indepence, to do it, you just need to make sure you are earning and saving for multiple purpuses, investing being the top priority.
+I bet you want to have so much money coming in that you dont need to work.
 
-The goal is to **accumulate assets** such as stocks, real estate or savings in order **to generate passive income.**
+Thhe goal is to **accumulate crypto assets** in order **to generate passive income.**.
 
-By doing so, we can concentrate on what is essential for them and live their life to the fullest.
+By doing so, we can concentrate on what is essential for us and live our life to the fullest.
 
 By bypassing traditional financial systems such as banks or governments, **crypto** gives people control over their money and lives.
 
-With crypto, you are in full control of your money, completely unreliant on anyone or anything else.
-That’s true financial independence.
+With crypto, you are in full control of your money.
 
 Crypto is a new financial asset that you can grow over the long term without doing much, through different methods such as lending or staking.
 This way, crypto assets can help you achieve financial independence.
