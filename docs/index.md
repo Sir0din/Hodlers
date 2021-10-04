@@ -8,17 +8,10 @@ Hold on to your life instead of chasing moneys,
 If you want to chase something, chase financial Indepence.
 
 This Website is an extension of [🚀Hodlers🌞 Discord Group](https://discord.gg/bB5WRbemFR) created to unite and help each other understand our rich we are, nurturing and empowering the community.
-If you managed to get here, you probably came for money($), whoever i hope you chose to stay for everything else and for the real money. Together we can understand what is money and how you can trade for profit.
+You are here! Congratulations 🥳
 
-"The lips of wisdom are closed, except to the ears of understanding"
-*The Kybalion*
-
-To understand what we are holding on, you must first come to observe and understand your priorities and beliefs.
-What do you value the most?
-How do you spend your time?
-How do you value your time?
-
-“Most of us have to consider our finances in nearly every decision we make, or maybe even make decisions solely based on money. But once we reach financial independence, we get the freedom not to be bossed around by what we earn or what we have saved.”
+*“Most of us have to consider our finances in nearly every decision we make, or maybe even make decisions solely based on money.
+Once you reach financial independence, you get the freedom not to be bossed around by what you earn or what you have saved.”*
 
 The goal is to **accumulate crypto assets** in order **to generate passive income**.
 
@@ -69,7 +62,7 @@ Trade, Stake and Lend on Kucoin!
 🔹 [Pionex](https://www.pionex.com/en-US/sign/ref/5fsUSrQW) is an exchange with built-in trading bots.
 I recommend Pionex Strategies, you will be 😲
 
-🔹 [Crypto.com]()
+🔹 [Crypto.com](Crypto.com)
 
 
 *There are mountains of information available on the internet, which could easily overwhelm anyone, including seasoned traders.*
